@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **linhh.nguyenminh@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1kWRCIJuXZCSDoR76zHNJz91Jid6RkSrc/view?usp=sharing](https://drive.google.com/file/d/1kWRCIJuXZCSDoR76zHNJz91Jid6RkSrc/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1kWRCIJuXZCSDoR76zHNJz91Jid6RkSrc/view](https://drive.google.com/file/d/1kWRCIJuXZCSDoR76zHNJz91Jid6RkSrc/view)
 
 - ⚡ Fun fact **If you are good then there will always be an Indian who is better than you**
 
